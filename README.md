@@ -12,3 +12,4 @@ In a world inundated with digital distractions, determining genuine student effo
 The Solution:
 Enter Deep Eye, a revolutionary platform designed to bring out the best in students and maintain the sanctity of academic assessments. Through cutting-edge technology, we analyze and showcase students' creativity, fostering a culture of genuine effort.
 
+Presentation Link- https://docs.google.com/presentation/d/1DTKoyyfOWnEt-jU2eURbKaUeVZoYG7QYZpqbtGKuSXk/edit?usp=sharing
